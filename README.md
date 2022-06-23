@@ -1,3 +1,2 @@
-🤖 Android Nerd
+🤖 Mobile dev who likes cats 🐱
 
-🐱 I like cats
